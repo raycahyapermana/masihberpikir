@@ -1,0 +1,2 @@
+# masihberpikir
+masih mencoba
